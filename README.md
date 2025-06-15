@@ -1,1 +1,1 @@
-# Anveshan_hackathon
+# Spot the Scam
